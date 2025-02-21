@@ -6,7 +6,7 @@
 - 📫 How to reach me:  
   - GitHub: [@selytheng](https://github.com/selytheng)  
   - Email: se.lytheng8@outlook.com, kh.lytheng@gmail.com 
-  - Telegram: [@selytheng](https://t.me/selytheng)
+  - Telegram: [@se_lytheng](https://t.me/se_lytheng)
 - ⚡ Fun fact: Thanks ChatGPT  
 
 <!---
